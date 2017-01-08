@@ -25,5 +25,10 @@ New York Times - 1 Hour Ago
 >Megyn Kelly's new deal brings to a close the most anticipated television news contract negotiations since Katie Couric signed with CBS News in 2006, for $15 million a year.  
 
 ***
+# [Chicago torture: Facebook Live video leads to 4 arrests](http://www.cnn.com/2017/01/04/us/chicago-facebook-live-beating/)  
 
+CNN - 1 Hour Ago  
 
+>A young woman who broadcast the beating and racial taunting of a man on Facebook Live has been arrested with three others in connection with the gruesome attack, Chicago police said Wednesday.  
+
+***
